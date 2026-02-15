@@ -1,3 +1,5 @@
----
-title: Welcome to my blog!
----
+FLYNNNNNN IS TYPPING!!!}
+
+HE HAS THE POWER 
+
+MWAHHHHAHHAHAH
